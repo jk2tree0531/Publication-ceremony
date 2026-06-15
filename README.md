@@ -1,3 +1,3 @@
-# Publication-ceremony
+# Publication-ceremony:모바일
 권무일 작가의 출판기념회 초대장 2026.7.25
 모바일 초대장
